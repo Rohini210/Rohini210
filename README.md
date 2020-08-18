@@ -6,4 +6,4 @@
 - 💬 Ask me about ...Anything
 - 📫 How to reach me: ...https://www.linkedin.com/in/p-rohini-7a90ab145/
 - 😄 Pronouns: ...she/her
-- ⚡ Fun fact: ...love sketching
+- ⚡ Fun fact: ...I love sketching and painting.🤭
